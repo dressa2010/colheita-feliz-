@@ -15,3 +15,4 @@ Imagine a colheita de trigo sem o trator. Seria um trabalho difícil , dependend
 •https://opresenterural.com.br/
 •https://pt.m.wikipedia.org/wiki/Links
 •https://www.meuguru.com
+•https://emojipedia.org/caniemoji
